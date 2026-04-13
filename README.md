@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CUMR061113HSLRRCA4
+CUMR061113HSLRRCA4
